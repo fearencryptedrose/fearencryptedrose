@@ -20,7 +20,7 @@
        
     
     
-  　 　 [ᵃᵗᵃ](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://orionpax1.straw.page/)ㅤ
+  　 　 [ᵃᵗᵃ](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://dee1dees.straw.page/)ㅤ
 </div>
 <p align="center">
 <p align="center">
