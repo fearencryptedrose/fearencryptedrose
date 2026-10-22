@@ -46,7 +46,7 @@
 
   <p align="center">
     
-<img width="2397" height="793" alt="image" src="https://kommodo.ai/i/ySVqSVnWhxnptlYfldhF" />
+<img width="2397" height="793" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-9bac3a8e-cbde-4c60-a3c3-90f99ebd6e43.png" />
  </div>
 
  <p align="center">
