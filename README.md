@@ -17,7 +17,7 @@
   </a>
 </p>
   
-  <img width="5040" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-3f2f63c3-c2f5-47ef-9bb2-697b57d5f8c0.png" />
+  <img width="2397" height="793" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-3f2f63c3-c2f5-47ef-9bb2-697b57d5f8c0.png" />
        <p align="center">
     <a
        
@@ -46,7 +46,7 @@
 
   <p align="center">
     
-<img width="5040" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-9acc5b00-84fe-4a7c-ae70-d342af91e6e8.png" />
+<img width="2397" height="793" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-9acc5b00-84fe-4a7c-ae70-d342af91e6e8.png" />
  </div>
 
  <p align="center">
@@ -61,4 +61,4 @@
      <p align="center">
     ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ　 　 ᶦʷᵉᶜ
      </div>
-  <img width="5040" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-c85da660-3cd7-412a-8933-74b16c84f9ee.png" />
+  <img width="2397" height="793" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-c85da660-3cd7-412a-8933-74b16c84f9ee.png" />
