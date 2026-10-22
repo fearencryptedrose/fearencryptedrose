@@ -46,7 +46,7 @@
 
   <p align="center">
     
-<img width="5040" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-3bd71bbe-204c-48c7-af30-2c821bc01c8e.png" />
+<img width="5040" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-9acc5b00-84fe-4a7c-ae70-d342af91e6e8.png" />
  </div>
 
  <p align="center">
