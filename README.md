@@ -61,4 +61,4 @@
      <p align="center">
     ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ　 　 ᶦʷᵉᶜ
      </div>
-  <img width="2397" height="793" alt="image" src="https://cdn.phototourl.com/member/2026-10-22-c85da660-3cd7-412a-8933-74b16c84f9ee.png" />
+  <img width="4655" height="1962" alt="image" src="https://cdn.phototourl.com/member/2026-10-25-f70dae92-2bb5-4ccd-a759-7d9c1a34f989.png" />
