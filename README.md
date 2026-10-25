@@ -40,25 +40,8 @@
  <p align="center">
    <p align="center">
      <p align="center">
-             sam　 　 †　 　 orion
+             sam　 　 †　 　 fallen
   
   </div>
 
   <p align="center">
-    
-<img width="5331" height="2775" alt="image" src="https://cdn.phototourl.com/member/2026-10-25-8bf15d87-547e-4daf-9b5c-f2d6b9df0da5.png" />
- </div>
-
- <p align="center">
-   <a
-
-</div>
-
-<p align="center">
-<p align="center">
- <p align="center">
-   <p align="center">
-     <p align="center">
-    ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ　 　 ᶦʷᵉᶜ
-     </div>
-  <img width="5331" height="2775" alt="image" src="https://cdn.phototourl.com/member/2026-10-25-f70dae92-2bb5-4ccd-a759-7d9c1a34f989.png" />
