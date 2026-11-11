@@ -17,7 +17,7 @@
   </a>
 </p>
   
-  <img width="5331" height="2775" alt="image" src="https://cdn.phototourl.com/member/2026-11-11-37682fe2-0b30-4611-8a5b-891761dd6177.png" />
+  <img width="2048" height="2048" alt="image" src="https://cdn.phototourl.com/member/2026-11-11-37682fe2-0b30-4611-8a5b-891761dd6177.png" />
        <p align="center">
     <a
        
