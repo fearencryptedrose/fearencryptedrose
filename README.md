@@ -4,7 +4,7 @@
 
 <div>
 <p align="center">
-<img width="2000" height="2000" alt="image" src="https://cdn.phototourl.com/member/2026-11-12-92ccefab-68f0-4b41-84b3-f6738555b769.png" />
+<img width="2509" height="2112" alt="image" src="https://cdn.phototourl.com/member/2026-11-12-92ccefab-68f0-4b41-84b3-f6738555b769.png" />
 
 &nbsp;<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
